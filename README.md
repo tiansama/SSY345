@@ -1,2 +1,2 @@
 # SSY345
-家里人谁懂啊，不要抄啊，自己写，加油！
+jia ren men,shei dong a?zi ji xie ba!
